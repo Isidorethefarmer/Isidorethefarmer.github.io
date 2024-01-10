@@ -1,6 +1,6 @@
-# Isidorethefarmer.githup.io
+![image](https://github.com/Isidorethefarmer/Isidorethefarmer.github.io/assets/152352662/8cd392da-af00-4852-b33b-37cc16a3d20e)# Isidorethefarmer.githup.io
 Daniel C. De Vera
-# This is all the type of monkeys you can find in the African jungles
+# These are some of types of monkeys you can find in Africa.
 
 This is the Chagma Monkey they are mostly found in southern Africa
 
@@ -8,5 +8,10 @@ This is the Chagma Monkey they are mostly found in southern Africa
 
 
 Chacma baboons are omnivorous feasting on many type of plants and animals. Their diet includes fruits such as figs and pinnata, eggs, Insects, small vertebraes and grass
+Chacma baboons are quadrupedal and terrestrial primates. When they run, their style is similar to a horse’s gallop. They often spend their nights high up on tree's or rock formations to sleep and escape predators such as lion, cheetah and snakes. Chacma baboons have the largest home ranges and daily ranges of savanna baboon species. Home ranges have been reported to be between 3.5 and 13 miles (5.6-20.9 km). Their daily travels can be limited by availability of watering sites and sleeping locations. Males do not maintain lifelong ties with their kin. Female kinship forms the stability of chacma baboons society. Since females do not emigrate from their natal groups, female kin maintain lifelong associations. Within a group of chacma baboons, there is a dominance hierarchy of matrilines (a line of descent from a female), which means that a certain individual female is of high rank in the society. An individual female occupies a place in the dominance hierarchy under her mother and younger sisters. These dominance relationships develop from infancy. Interestingly within the matriline, the dominance relationships of sisters are inverse of birth order: the younger sisters are higher ranked than the older sister. These relationships sometimes cause differential treatment of offspring as well as others in the troop. The benefits of having this type of dominance society is that high ranked females have access to the best mates, have better access to food, receive more grooming, and get harassed less. Chacma baboons engage in a variety of visual, vocal, and tactile communication. They use facial expressions and body postures to communicate levels of excitement, arousal, or anger. Friendly and non-threatening behavior consists of soft grunts, avoiding eye contact, and retracting lips to display their clenched teeth. Presentation of the rump is used as an invitation by sexually receptive females, but it can be used as a signal by both sexes. The reproductive behavior in chacma baboons is closely tied to social organization. In multi-male, multi-female troops, it is likely that any male can mate with any female. Thus, males compete for mates. There is also a link between a male’s rank within the troop and mating success. Most of the time, males with a higher rank have a better ability to compete for mates. Larger, stronger, and sometimes even younger males have the best success. Females exhibit a preference for mating with their male friends, since they prefer their friends as mates. When a female is ready to mate, she presents her rump to those males. Sometimes females develop an alliance with new males that immigrate into the troop to help their chances of success. There is a significant amount of female mate choice in chacma baboons. 
+![image](https://github.com/Isidorethefarmer/Isidorethefarmer.github.io/assets/152352662/52423988-9e88-40ae-bd9d-57591bad1870)
+
+
+
 
 
